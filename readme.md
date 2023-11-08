@@ -19,4 +19,4 @@
 
 8. Agreement: By purchasing any of our products or services such as this server, you acknowledge and agree to these Terms of Service. We are not responsible for any inconvenience that may arise if you have not read and understood our Terms of Service prior to purchasing our products.
 
-9. Privacy Policy: View our website: 1hack.org
+9. Privacy Policy: View our website: stormfn.wtf
